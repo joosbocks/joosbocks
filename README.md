@@ -1,4 +1,4 @@
-hi im joosbocks/joosyfruit! any prns except he bcs im a girl grrrrhrr
+hi im joosbocks/joosyfruit! any prns except he bcs im a girl grrrrhrr....
 im pretty chill, be nice to me and i'll be nice to u! :)
 
 <!--
