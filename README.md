@@ -1,10 +1,16 @@
 be nice to me and i'll be nice back
+
 basic info about me:
+
 6teen
+
 i speak english and some german
+
 i am a former crk meta slave
+
 DNI:
 basic dni criteria and just ppl who cause drama idk
+
 interests:
 Wuthering waves (IM INSANE ABOUT IT), alien stage, jjk, kny, death note, tshd, vocaloid (very casual fan), arcane, tadc, csm
 if you play wuthering waves please talk to me i am genuinely addicted
