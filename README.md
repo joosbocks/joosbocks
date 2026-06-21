@@ -1,6 +1,4 @@
-hi im joosbocks/joosyfruit! any prns except he bcs im a girl grrrrhrr....
-im pretty chill, be nice to me and i'll be nice to u! :)
-
+be nice to me and i'll be nice back
 <!--
 **joosbocks/joosbocks** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
