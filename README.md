@@ -1,5 +1,7 @@
 be nice to me and i'll be nice back
 
+WHY ARE SO MANY PEOPLE SIGNING MY ATABOOK WHERE DID YOU PEOPLE COME FROM
+
 basic info about me:
 
 6teen
