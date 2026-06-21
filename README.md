@@ -12,7 +12,8 @@ DNI:
 basic dni criteria and just ppl who cause drama idk
 
 interests:
-Wuthering waves (IM INSANE ABOUT IT), alien stage, jjk, kny, death note, tshd, vocaloid (very casual fan), arcane, tadc, csm
+Wuthering waves (IM INSANE ABOUT IT), alien stage, jjk, kny, death note, tshd, vocaloid (very casual fan), arcane, tadc, csm, other things that i cant remember atm...
+
 if you play wuthering waves please talk to me i am genuinely addicted
 <!--
 
