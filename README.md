@@ -13,7 +13,7 @@ i really like signing people's atabooks
 DNI:
 basic dni criteria and just ppl who cause drama idk
 
-BFYI: i spend a lot of time doing other things and just so happen to have pt on in the background... if you want my attention for anything, just whisper. if u need help with the build limit or anything like that i gotchu.
+BFYI: i spend a lot of time doing other things and just so happen to have pt on in the background... if you want my attention for anything, just whisper me !
 
 interests:
 
