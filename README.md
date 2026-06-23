@@ -20,6 +20,8 @@ interests:
 Wuthering waves (IM INSANE ABOUT IT), alien stage, jjk, kny, death note, tshd, vocaloid (very casual fan), arcane, bsd, tadc, csm, other things that i cant remember atm...
 
 if you play wuthering waves please talk to me i am genuinely addicted
+
+(6/22) thought of the week: pt skin pretty privilege is lwk insane
 <!--
 
 **joosbocks/joosbocks** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
