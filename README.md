@@ -1,5 +1,3 @@
-be nice to me and i'll be nice back
-
 WHY ARE SO MANY PEOPLE SIGNING MY ATABOOK WHERE DID YOU PEOPLE COME FROM
 
 basic info about me:
@@ -15,7 +13,10 @@ i really like signing people's atabooks
 DNI:
 basic dni criteria and just ppl who cause drama idk
 
+BFYI: i spend a lot of time doing other things and just so happen to have pt on in the background... if you want my attention for anything, just whisper. if u need help with the build limit or anything like that i gotchu.
+
 interests:
+
 Wuthering waves (IM INSANE ABOUT IT), alien stage, jjk, kny, death note, tshd, vocaloid (very casual fan), arcane, bsd, tadc, csm, other things that i cant remember atm...
 
 if you play wuthering waves please talk to me i am genuinely addicted
