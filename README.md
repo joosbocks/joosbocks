@@ -6,8 +6,6 @@ basic info about me:
 
 i speak english and some german
 
-i am a former crk meta slave
-
 i really like signing people's atabooks 
 
 DNI:
