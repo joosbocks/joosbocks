@@ -1,35 +1,9 @@
-basic info about me:
+<div align="center">
 
-6teen
+[![CREDIT: angelz-howl on tumblr](https://i.postimg.cc/wB2mhk5C/blur-edges-(4).png)](https://postimg.cc/WDDzVgH8)
 
-i speak english and some german
 
-i really like signing people's atabooks 
+[rentry](https://rentry.co/joosbocks)  ۶ৎ  [ata](https://joosyfruit.atabook.org/)
 
-DNI:
-basic dni criteria and just ppl who cause drama idk
 
-BFYI: i spend a lot of time doing other things and just so happen to have pt on in the background... if you want my attention for anything, just whisper me !
-
-interests:
-
-Wuthering waves (IM INSANE ABOUT IT), alien stage, jjk, kny, death note, tshd, vocaloid (very casual fan), arcane, bsd, tadc, csm, other things that i cant remember atm...
-
-if you play wuthering waves please talk to me i am genuinely addicted
-
-(6/22) thought of the week: pt skin pretty privilege is lwk insane
-<!--
-
-**joosbocks/joosbocks** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div align="center">
