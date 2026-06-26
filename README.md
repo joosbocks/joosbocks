@@ -1,7 +1,5 @@
 WHY ARE SO MANY PEOPLE SIGNING MY ATABOOK WHERE DID YOU PEOPLE COME FROM
 
-(Rentry is a wip)
-
 basic info about me:
 
 6teen
