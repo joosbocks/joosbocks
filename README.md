@@ -1,7 +1,7 @@
 <div align="center">
 
 
-![](https://komarev.com/ghpvc/?username=0&base=683&color=ff69b4)
+![](https://komarev.com/ghpvc/?username=0&base=375&color=ff69b4&label=YURI+ENTHUSIASTS+^^)
 
 
 [![CREDIT: angelz-howl on tumblr](https://i.postimg.cc/wB2mhk5C/blur-edges-(4).png)](https://postimg.cc/WDDzVgH8)
