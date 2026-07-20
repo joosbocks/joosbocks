@@ -35,7 +35,7 @@ $\color{#8f0040}{𝙢𝙞𝙣𝙤𝙧ㅤㅤ♡}$
 ㅤ
 ㅤ★
 ㅤ
-ㅤ[ata](https://atabook.org/joosyfruit](https://joosyfruit.atabook.org/) 
+ㅤ[ata](https://joosyfruit.atabook.org/) 
 ㅤ
 ㅤ★
 ㅤ
