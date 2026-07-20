@@ -4,7 +4,7 @@
 ![](https://komarev.com/ghpvc/?username=0&base=375&color=ff69b4&label=YURI+ENTHUSIASTS+^^)
 
 
-[![CREDIT: angelz-howl on tumblr](https://i.postimg.cc/wB2mhk5C/blur-edges-(4).png)](https://postimg.cc/WDDzVgH8)
+![CREDIT: angelz-howl on tumblr](https://files.catbox.moe/5toqsh.png)
 
 
 [rentry](https://rentry.co/pixelskies)  ۶ৎ  [ata](https://joosyfruit.atabook.org/)
