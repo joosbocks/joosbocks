@@ -52,6 +52,8 @@ $\color{#8f0040}{𝙢𝙞𝙣𝙤𝙧ㅤㅤ♡}$
 ![kirokumiku on tumblr!](https://64.media.tumblr.com/06cd3476a377497d1d1b808f2daa96cb/27af65c5476596ba-0d/s2048x3072/373c32505bcfb16413b23173ac70b06706c6babc.gifv)
 
 
+$\color{#ffddec}{graphic\ cr \ @kirokumiku\ on\  tumblr}$
+
 
 
 
