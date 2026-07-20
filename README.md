@@ -39,7 +39,7 @@ $\color{#8f0040}{𝙢𝙞𝙣𝙤𝙧ㅤㅤ♡}$
 ㅤ
 ㅤ★
 ㅤ
-ㅤ[prns.page](https://pronouns.page/@larp07011)
+ㅤ[prns.page](https://en.pronouns.page/@larp07011)
 
 ![](https://files.catbox.moe/dqrxtd.png)
 
